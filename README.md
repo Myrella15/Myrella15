@@ -9,3 +9,4 @@
 - Estudo no colégio Jscelino Kubitschek da Lapa
 - A minha formação está prevista para 2024
 - Estou no 1°ano do ensino médio  
+- Atuo como monitora escolar (2022)
