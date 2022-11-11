@@ -4,3 +4,5 @@
 - Sou estudante  de computação
 - Tenho 15 anos 
 - Estou  aprendendo a fazer meu curriculo
+- Estou cursando inglês e informática básica
+- 
