@@ -1,6 +1,6 @@
 # Sobre mim
 ## Leia-me 
-- Eu moro no Rio da Areia (mnicipio da Lapa)
+- Eu moro no Rio da Areia (muicipio da Lapa)
 - Olá eu sou a Myrella
 - Sou estudante  de computação
 - Tenho 15 anos 
